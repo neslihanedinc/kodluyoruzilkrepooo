@@ -1,1 +1,1 @@
-# kodluyoruzilkrepooo
+# kodluyoruzilkrepo
